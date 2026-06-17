@@ -1,1 +1,1 @@
-Voxy is an LoD rendering mod for minecraft hehe 
+Voxy is an LoD rendering mod for minecraft hehe !!
